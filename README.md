@@ -7,5 +7,6 @@ Creating stuff, brainstorming ideas, tweaking and testing them and also helping 
 Enjoy the style of life you want, by simply working to create it.
 
 #MoreStuff coming up!
+Check out my other repositories!
 
 Abhishek out.
